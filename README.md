@@ -1,1 +1,1 @@
-# Rough drafts for Aamtanirbhar Competition :heart:
+# Rough drafts for Aatmanirbhar Competition :heart:
